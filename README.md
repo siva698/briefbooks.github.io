@@ -1,1 +1,1 @@
-# briefbooks.github.io
+# briefbooks.com
